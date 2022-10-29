@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **1807sagarpratapsinghrajput@gmail.com**
 
-- ⚡ Fun fact **Fun fact is that I'm Superman!!**
+- ⚡ Fun fact **is that I'm Superman!!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
